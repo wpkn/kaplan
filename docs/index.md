@@ -8,7 +8,7 @@ meta_keywords: 新加坡淡马锡理工学院毕业证, Temasek Polytechnic dipl
 
 在当今全球化的人才竞争中，新加坡的教育体系因其严谨、实用和高度契合市场需求而备受国际瞩目。作为新加坡五所政府理工学院之一，**新加坡淡马锡理工学院（Temasek Polytechnic，简称 TP）** 所颁发的**毕业证（Diploma）** 在国际上享有极高的声誉。
 
-![新加坡淡马锡理工学院毕业证毕业证样本及学位证文凭样本模版(Temasek Polytechnic Diploma/Certificate of Degree)](tp-diploma.jpg)
+![新加坡淡马锡理工学院毕业证及学位证文凭样本模版(Temasek Polytechnic Diploma/Certificate of Degree)](tp-diploma.jpg)
 
 无论是计划在新加坡本地就业、回国办理教育部学历学位认证，还是以此为跳板申请全球顶尖大学的学士学位，深入了解淡马锡理工学院毕业证的含金量与核心价值都至关重要。本文将为您全方位拆解这一文凭背后的独特优势。
 
